@@ -1,4 +1,4 @@
-# 
+# Profesional momentum trading bot complementos for Mac OS | VIP momentum trading bot complementos for PC Windows. Featuring estrategia de reversión a la media and API de intercambio centralizado — optimized for maximum performance.
 
 
 
